@@ -1,4 +1,4 @@
 # futurex
 mind create a new world 
 <br>
-made by nitesh 
+made by nitesh bhai  (futurex)
